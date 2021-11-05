@@ -1,0 +1,2 @@
+# Umum-Openclash
+khusus umum
